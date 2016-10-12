@@ -1,1 +1,1 @@
-Weapon of Mass Zipping
+Comics Archive Maker
